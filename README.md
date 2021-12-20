@@ -1,0 +1,1 @@
+# mening_birinci_ishim
